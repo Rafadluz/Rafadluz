@@ -6,6 +6,6 @@
   
   Gosto de desenhar e fazer bonecos.
 
-  Tenho um cachorro.
+  Tenho um cachorro e uma colção de bichos de pelucia.
 
  
